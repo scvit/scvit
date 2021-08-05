@@ -20,13 +20,15 @@
 
 * 로스트아크
   * 10개월차
-  * 기공사 1530
+  * 기공사 1530 
 
 
 
 ***
 
-BGM 추천 
+BGM 강력추천
+
+Dawn Of Akrasia - Opera ver
 
 https://www.youtube.com/watch?v=dECAHhUD088&t=2s
 
