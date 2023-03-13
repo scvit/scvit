@@ -25,13 +25,6 @@
 
 
 
-***
-
-BGM 강력추천
-
-Dawn Of Akrasia - Opera ver
-
-https://www.youtube.com/watch?v=dECAHhUD088&t=2s
 
 
 
