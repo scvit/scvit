@@ -7,7 +7,7 @@
 * 2022.12.01 디딤기술 입사 - 솔루션기술팀 근무
 
 ## Certificate
-Vault Associate - https://www.credly.com/badges/11d68db7-13e5-4d6d-9740-0debff69f694/public_url
+Vault Associate 
 
 
 
